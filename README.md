@@ -1,2 +1,2 @@
 20213103 Hwang ChanWoo
-Kookmin Univ. SW
+Kookmin Univ. SW dept.
